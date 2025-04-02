@@ -1,1 +1,1 @@
-Graduate Software Engineer at THG
+Software engineer at Starling Bank
